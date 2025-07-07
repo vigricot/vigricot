@@ -1,4 +1,4 @@
 
 
 
-![Visitor Badge](https://visitor-badge.glitch.me/badge?page_id=vigricot.vigricot)
+![ˆ𐃷ˆ](https://visitor-badge.laobi.icu/badge?page_id=vigricot.vigricot&title=ˆ𐃷ˆ%20Total%20Views)
