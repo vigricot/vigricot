@@ -1,3 +1,4 @@
 
 
-                                                        ![Profile views](https://visitor-badge.laobi.icu/badge?page_id=vigricot)
+
+![Profile views](https://visitor-badge.laobi.icu/badge?page_id=vigricot)
